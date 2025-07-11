@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://tv.activation-key.net/">
+
 How to Activate Peacock TV?: A Complete Guide
 ============================================
 .
